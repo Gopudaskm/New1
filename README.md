@@ -1,6 +1,6 @@
 # hai
 hello frdz..
 can you help me?
-Hai broo yes here 
+Hai broo yes 
 Scecians
 
